@@ -1,3 +1,4 @@
-## i will host things on this site
-
-yes
+## i might make this into a site
+ yea
+ 
+ 
